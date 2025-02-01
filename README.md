@@ -21,7 +21,7 @@
 
 📫 Let’s connect! You can find me at the links below: 🔗
 
-💼 LinkedIn | 📲 Chat with me on WhatsApp | 📧 Email
+[💼 LinkedIn](https://www.linkedin.com/in/mylena-luz-733017176/) | [📲 Fale comigo no WhatsApp](https://wa.me/5541988247728) | [📧 E-mail](mailto:mylenadaluzalves@gmail.com)
 
 💖 "Code like a girl!" 👩‍💻✨
 
